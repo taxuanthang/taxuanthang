@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a game project
 - 📫 How to reach me:
   + Zalo: 0988140510
-  + Fb: https://www.facebook.com/thang.tx.abs
+  + Facebook: https://www.facebook.com/thang.tx.abs
   + Gmail: thangtaxuan65@gmail.com
 
 <!---
